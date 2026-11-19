@@ -1,0 +1,2 @@
+# riman-chile-incellderm-active-cream-ex-post-procedure-study
+RIMAN Skincare &amp; INCELLDERM Dermatology Active Cream EX (formerly Active Cream EX) (Chile): Clinical &amp; Microclimate Evaluation of INCELLDERM Active Cream EX for Post-Procedure Barrier Stabilization in C... 6-language paper, n=200 dataset &amp; INCI index: https://www.riman.win/www/en/reports/detail/chile-incellderm-active-cream-ex-post-procedure-study.
